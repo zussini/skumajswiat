@@ -1,0 +1,2 @@
+# skumajswiat
+stronaedukacyjna
